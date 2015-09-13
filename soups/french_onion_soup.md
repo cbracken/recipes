@@ -5,17 +5,17 @@ Makes 4 servings.
 
 Ingredients
 -----------
-* 2 tbsp butter
+* 30 g butter
 * 4 onions
 * 3 bay leaves
 * Thyme
-* 2 litres beef broth (and/or chicken stock)
-* 1/2 cup red wine
-* 1 tsp Worcestershire sauce
+* 2 L beef broth (and/or chicken stock)
+* 125 mL red wine
+* 5 mL Worcestershire sauce
 * salt & pepper to taste
 * paprika to taste
 * 4 thick slices bâtard bread
-* 2 cups shredded Gruyère cheese
+* 200 g shredded Gruyère cheese
 
 Directions
 ----------

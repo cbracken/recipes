@@ -5,7 +5,8 @@ Makes N servings.
 
 Ingredients
 -----------
-* 1 tsp something
+* 5 mL something
+* 30 g something
 
 Directions
 ----------

@@ -6,16 +6,16 @@ Makes 4 portions.
 Ingredients
 -----------
 * 250g linguini
-* 2 Tbsp butter
-* 2 Tbsp olive oil
+* 30 g butter
+* 30 mL olive oil
 * 2 shallots, finely diced
 * 2 cloves garlic, minced
 * pinch red pepper flakes
 * 250g shirmp, peeled and deveined
 * salt and freshly ground black pepper
-* 1/2 cup dry white wine
+* 125 mL dry white wine
 * juice of 1 lemon
-* 2 Tbsp finely chopped parsley leaves
+* 30 mL finely chopped parsley leaves
 
 
 Directions
