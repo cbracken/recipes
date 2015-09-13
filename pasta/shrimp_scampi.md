@@ -1,19 +1,21 @@
 Shrimp Scampi
 =============
 
+Makes 4 portions.
+
 Ingredients
 -----------
-* 500g linguini
-* 4 Tbsp butter
-* 4 Tbsp olive oil
+* 250g linguini
+* 2 Tbsp butter
+* 2 Tbsp olive oil
 * 2 shallots, finely diced
 * 2 cloves garlic, minced
 * pinch red pepper flakes
-* 500g shirmp, peeled and deveined
+* 250g shirmp, peeled and deveined
 * salt and freshly ground black pepper
 * 1/2 cup dry white wine
 * juice of 1 lemon
-* 1/4 cup finely chopped parsley leaves
+* 2 Tbsp finely chopped parsley leaves
 
 
 Directions
