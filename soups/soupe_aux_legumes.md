@@ -26,8 +26,8 @@ Préparation
 1. Si désiré, servir avec le feuilleté au fromage Oka (voir recette).
 
 
-Note
-----
+Notes
+-----
 La saison des gourganes est courte. On les trouve fraîches en épicerie quelques
 semaines pendant les mois de juillet et d’août. On les trouve aussi surgelées,
 pelées ou non, dans les épiceries fines ou moyen-orientales. Elles sont aussi
