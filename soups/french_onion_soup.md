@@ -13,8 +13,7 @@ Ingredients
 * salt & pepper to taste
 * paprika to taste
 * 4 thick slices bâtard bread
-* 1 cup shredded Gruyère cheese
-* 1 cup shredded Mozzarella cheese
+* 2 cups shredded Gruyère cheese
 
 Directions
 ----------
