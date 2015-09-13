@@ -1,6 +1,8 @@
 French Onion Soup
 =================
 
+Makes 4 servings.
+
 Ingredients
 -----------
 * 2 tbsp butter
