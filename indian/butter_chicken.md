@@ -19,8 +19,8 @@ Ingredients
 ### Curry
 * 15 mL vegetable oil or ghee
 * 250 mL tomato passata or purée
-* 15 mL sugar
-* 5 mL salt
+* 15 g sugar
+* 5 g salt
 * 250 mL cream (or mix or cream and milk)
 
 Directions
