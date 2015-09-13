@@ -1,6 +1,8 @@
 Soupe aux légumes
 =================
 
+Donne 4 portions.
+
 Ingrédients
 -----------
 * 1 oignon, haché
