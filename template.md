@@ -1,6 +1,8 @@
 Title
 =====
 
+Makes N servings.
+
 Ingredients
 -----------
 * 1 tsp something
