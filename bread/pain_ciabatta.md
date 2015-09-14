@@ -11,7 +11,6 @@ Ingrédients
 * 5 g de sel
 * une pincée de sucre
 * 50 mL huile d'olive
-* fleurs de sel
 
 Préparation
 -----------
