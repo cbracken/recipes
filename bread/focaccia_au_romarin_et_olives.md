@@ -49,7 +49,7 @@ Préparation
    doigts, ajouter les olives et saupoudrer la surface de fleur de sel si
    désiré.
 1. Enfourner le pain et réduire la température à 230 C, cuire 10 minutes,
-   retourner la plaque et continuer pour 10 min ou jusqu'à ce que la surface
-   soit dorée.
+   retourner la plaque et continuer pour 10 minutes ou jusqu'à ce que la
+   surface soit dorée.
 1. À la sortie du four laisser refroidir la focaccia sur une grille durant 20
    minutes.
