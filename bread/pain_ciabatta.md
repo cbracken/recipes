@@ -23,20 +23,20 @@ Préparation
 1. Sur une table de travail, prendre la pâte et la jeter, la reprendre et la
    jeter. Ne surtout pas ajouter de farine, elle se formera toute seule,
    deviendra élastique et ne collera plus sur la table de travail.
-1. Recouvrir d'un plastique et laisser lever 1h.
+1. Recouvrir d'un plastique et laisser lever 1 heure.
 1. Dégazer la pâte et la plier en 4 pour lui donner une forme (en premier lieu
    la plier en deux comme un portefeuille. Ensuite la replier en deux sur les
    côtés).
-1. Laisser lever une seconde fois durant 1h en recouvrant d'un plastique.
+1. Laisser lever une seconde fois durant 1 heure en recouvrant d'un plastique.
 1. Déposer la pâte sur une surface farinée, et du bout des doigts la dégazer
    tout en l'étalant pour former un rectangle, recouvrir du plastique et
-   laisser lever 1h.
+   laisser lever 1 heure.
 1. Saupoudrer légèrement le rectangle de farine afin de lui donner un petit
    côté rustique.
 1. Découper des petits pains rectangulaires ou de grands pains à l'aide d'un
    grand couteau aiguisé.
-1. Cuire dans un four préchauffé 210 C durant 20 min, jusqu'à ce que les pains
-   soient dorés et sonnent creux (mettre un récipient d'eau dans le
+1. Cuire dans un four préchauffé 210 C durant 20 minutes, jusqu'à ce que les
+   pains soient dorés et sonnent creux (mettre un récipient d'eau dans le
    lèchefrite).
 1. Laisser refroidir sur sur une grille, les pains seront légers et la croûte
    molle un pur régal.
