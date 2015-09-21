@@ -18,7 +18,7 @@ Notes
 
 Allergènes
 ----------
-* Oeuf
+* Œuf
 * Produits laitiers
 * Blé
 * Sarrasin
@@ -27,10 +27,10 @@ Allergènes
 * Crabe
 * Crustacé/mollusque
 * Calmar
-* Oeuf de saumon
+* Œuf de saumon
 * Orange
 * Kiwi
-* Boeuf
+* Bœuf
 * Noix
 * Saumon
 * Maquereau
