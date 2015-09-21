@@ -15,3 +15,31 @@ Préparation
 Notes
 -----
 * Quelque chose de faculatif.
+
+Allergènes
+----------
+* Oeuf
+* Produits laitiers
+* Blé
+* Sarrasin
+* Arachide
+* Crevette
+* Crabe
+* Crustacé/mollusque
+* Calmar
+* Oeuf de saumon
+* Orange
+* Kiwi
+* Boeuf
+* Noix
+* Saumon
+* Maquereau
+* Soja
+* Poulet
+* Banane
+* Porc
+* Champignon
+* Pêche
+* Igname
+* Pomme
+* Gélatine
