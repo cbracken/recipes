@@ -21,3 +21,8 @@ Directions
 1. Refrigerate for 2 hours.
 1. Heat crêpe pan, melt a small amount of margarine. Add 50 mL batter, swirl to
    spread thinly over pan, cook until golden, flip and finish.
+
+Notes
+-----
+* This recipe tends to come out a bit crispy. For a dairy-free non-vegan crêpe,
+  adding an egg should fix this.
